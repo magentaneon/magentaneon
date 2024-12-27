@@ -4,5 +4,5 @@
 
 ### " You say ' too late to change ' , got your heart in a headlock. "
 
-
+<div class="tenor-gif-embed" data-postid="27505969" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/pink-gif-27505969">Pink GIF</a>from <a href="https://tenor.com/search/pink-gifs">Pink GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
 <img src="https://gifcity.carrd.co/assets/images/gallery42/b42e60b6.gif?v=47652796"/>
