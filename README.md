@@ -1,7 +1,6 @@
 ### currently a work in progress 😔
 
-<script type='text/javascript' src='https://www.freevisitorcounters.com/auth.php?id=6702640915515c3e67f80defedb8ebc635d1f81e'></script>
-<script type="text/javascript" src="https://www.freevisitorcounters.com/en/home/counter/1281306/t/13"></script>
+<div align='center'><a href='https://www.free-website-hit-counter.com'><img src='https://www.free-website-hit-counter.com/zc.php?d=4&id=3030&s=5' border='0' alt='Free Website Hit Counter'></a><br /><small><a href='https://www.free-website-hit-counter.com' title="Free Website Hit Counter">Free website hit counter</a></small></div>
 
 ### " You say ' too late to start ' , got your heart in a headlock . "
 
