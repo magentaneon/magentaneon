@@ -7,11 +7,6 @@
 <div align=center><img src="https://gifcity.carrd.co/assets/images/gallery81/98a8a387.gif?v=47652796"/>
 <div align=center><img src="https://gifcity.carrd.co/assets/images/gallery42/b42e60b6.gif?v=47652796"/>
 <br></br>
-
-
-
-
-
-
-
+<br></br>
+<br></br>
 <div align=center><img src="https://gifcity.carrd.co/assets/images/gallery44/b3795190.gif?v=47652796"/>
