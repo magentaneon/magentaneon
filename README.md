@@ -5,5 +5,4 @@
 ### " You say ' too late to change ' , got your heart in a headlock. "
 
 
-https://gifcity.carrd.co/assets/images/gallery42/b42e60b6.gif?v=47652796
 
