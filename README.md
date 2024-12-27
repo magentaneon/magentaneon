@@ -7,8 +7,16 @@
 <div align=center><img src="https://gifcity.carrd.co/assets/images/gallery81/98a8a387.gif?v=47652796"/>
 <div align=center><img src="https://gifcity.carrd.co/assets/images/gallery42/b42e60b6.gif?v=47652796"/>
 <br></br>
+<br></br> byi
+<br></br> socials. 
 <br></br>
 <br></br>
-<br></br>
-<br></br>
+<img src="https://gifcity.carrd.co/assets/images/gallery42/13b67c48.gif?v=47652796">
 <div align=center><img src="https://gifcity.carrd.co/assets/images/gallery44/b3795190.gif?v=47652796"/>
+<div align=center><img src="https://gifcity.carrd.co/assets/images/gallery42/b42e60b6.gif?v=47652796"/>
+<br></br>
+<br></br>
+<br></br>
+<br></br>
+<br></br>
+<img src="https://gifcity.carrd.co/assets/images/gallery42/13b67c48.gif?v=47652796">
