@@ -4,4 +4,4 @@
 
 
 
-<div align=center><a href='https://www.counter12.com'><img src='https://www.counter12.com/img-bc7WD63a7Zz6Bw85-26.gif' border='0' alt='free web counter'></a><script type='text/javascript' src='https://www.counter12.com/ad.js?id=bc7WD63a7Zz6Bw85'></script></div>
+<div align=center><a href='https://www.counter12.com'><img src='https://www.counter12.com/img-bc7WD63a7Zz6Bw85-26.gif' border='0' alt='free web counter'>
