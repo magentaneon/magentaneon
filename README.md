@@ -20,4 +20,4 @@
 <br></br>
 <br></br>
 <div align=center><img src="https://gifcity.carrd.co/assets/images/gallery42/13b67c48.gif?v=47652796"/>
-<div align=center><img src="https://gifcity.carrd.co/assets/images/gallery41/2ce69b73.gif?v=47652796/>
+<div align=center><img src="https://gifcity.carrd.co/assets/images/gallery41/2ce69b73.gif?v=47652796"/>
