@@ -1,6 +1,6 @@
 ### currently a work in progress 😔
 
-<div align='center'><a href='https://www.free-website-hit-counter.com'><img src='https://www.free-website-hit-counter.com/zc.php?d=4&id=3030&s=5' border='0' alt='Free Website Hit Counter'></a><br /><small><a href='https://www.free-website-hit-counter.com' title="Free Website Hit Counter">Free website hit counter</a></small></div>
+<div align='center'><a href='https://www.free-website-hit-counter.com'><img src='https://www.free-website-hit-counter.com/zc.php?d=4&id=3030&s=5' border='0' alt='Free Website Hit Counter'></a><br /><small><a href='https://www.free-website-hit-counter.com' title="Free Website Hit Counter">
 
 ### " You say ' too late to start ' , got your heart in a headlock . "
 
