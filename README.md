@@ -6,7 +6,7 @@
 
 <img src="https://file.garden/Z27h4AbA8Ge0bepr/enta.gif"/>
 
-<img src="https://file.garden/Z27h4AbA8Ge0bepr/error.gif"/>
+<div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/error.gif"/>
 
 <img src="https://gifcity.carrd.co/assets/images/gallery42/b42e60b6.gif?v=47652796"/>
 
