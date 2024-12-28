@@ -2,7 +2,7 @@
 
 <div align='center'><a href='https://www.free-website-hit-counter.com'><img src='https://www.free-website-hit-counter.com/zc.php?d=4&id=3030&s=5' border='0' alt='Free Website Hit Counter'></a><br /><small><a href='https://www.free-website-hit-counter.com' title="Free Website Hit Counter">
 
-<div align='center'><img src="https://file.garden/Z27h4AbA8Ge0bepr/cooltext472696257618665.png"/>
+
 
 <div align=center><img src="https://gifcity.carrd.co/assets/images/gallery81/98a8a387.gif?v=47652796"/>
 <div align=center><img src="https://gifcity.carrd.co/assets/images/gallery42/b42e60b6.gif?v=47652796"/>
@@ -22,4 +22,3 @@
 <div align=center><img src="https://gifcity.carrd.co/assets/images/gallery42/13b67c48.gif?v=47652796"/>
 <div align=center><img src="https://gifcity.carrd.co/assets/images/gallery48/2c555316.gif?v=47652796"/>
 
-<div align='center'><img src="https://file.garden/Z27h4AbA8Ge0bepr/cooltext472696453405895.png"/>
