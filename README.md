@@ -15,7 +15,6 @@
 <img src="https://file.garden/Z27h4AbA8Ge0bepr/missingtexturegender.png
 
 <br></br>
-  
 <div align=center> <strong>socials::</strong>
 <a href="https://missingt3xture.tumblr.com/" rel="nofollow">tumblr ,</a>
 <a href="https://missingt3xture.straw.page/" rel="nofollow">strwpg.</a>
