@@ -4,21 +4,21 @@
 
 
 
-<div align=center><img src="https://gifcity.carrd.co/assets/images/gallery81/98a8a387.gif?v=47652796"/>
-<div align=center><img src="https://gifcity.carrd.co/assets/images/gallery42/b42e60b6.gif?v=47652796"/>
+<div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/98a8a387.gif"/>
+<div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/b42e60b6.gif"/>
 <br></br>
 <br></br> byi + info
 <br></br> socials. 
 <br></br>
 <br></br>
-<img src="https://gifcity.carrd.co/assets/images/gallery42/13b67c48.gif?v=47652796"/>
-<div align=center><img src="https://gifcity.carrd.co/assets/images/gallery44/b3795190.gif?v=47652796"/>
-<div align=center><img src="https://gifcity.carrd.co/assets/images/gallery42/b42e60b6.gif?v=47652796"/>
+<img src="https://file.garden/Z27h4AbA8Ge0bepr/13b67c48.gif"/>
+<div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/b3795190.gif"/>
+<div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/b42e60b6.gif"/>
 <br></br>
 <br></br>
 <br></br>dni for pt
 <br></br>
 <br></br>
-<div align=center><img src="https://gifcity.carrd.co/assets/images/gallery42/13b67c48.gif?v=47652796"/>
-<div align=center><img src="https://gifcity.carrd.co/assets/images/gallery48/2c555316.gif?v=47652796/>
+<div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/13b67c48.gif"/>
+<div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/2c555316.gif"/>
 
