@@ -12,9 +12,9 @@
 <img src="https://cdn.discordapp.com/emojis/1115013252582211584.webp?size=22&quality=lossless"/>
 <img src="https://file.garden/Z27h4AbA8Ge0bepr/errorlexic.png"/>
 <img src="https://file.garden/Z27h4AbA8Ge0bepr/missingtexturegender.png"/>
-<div align=center> <strong>socials:: tumblr , strwpg .</strong>
-<a href="https://tumblr.com/missingt3xture/" rel="nofollow">tumblr</a>
-<a href="https://missingt3xture.straw.page/" rel="nofollow">strwpg</a>
+<div align=center> <strong>socials::</strong>
+<a href="https://tumblr.com/missingt3xture/" rel="nofollow">tumblr ,</a>
+<a href="https://missingt3xture.straw.page/" rel="nofollow">strwpg.</a>
 <div align=center> <strong>Intrests:: Mouthwashing, errors & malware, etc.</strong>
 <a href="https://missingt3xture.straw.page/interests" rel="nofollow">etc.</a>
 <br></br>
