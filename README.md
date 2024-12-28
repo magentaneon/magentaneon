@@ -4,15 +4,17 @@
 
 
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/98a8a387.gif"/>
-<div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/cooltext472696257618665.png"/>
+<div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/cooltext472697457427533.png"/>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/b42e60b6.gif"/>
 <br></br>
 <br></br> byi + info
 <br></br> socials. 
 <br></br>
 <br></br>
-<img src="https://file.garden/Z27h4AbA8Ge0bepr/13b67c48.gif"/>
+<div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/13b67c48.gif"/>
+<div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/cooltext472697401163834.png"/>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/b3795190.gif"/>
+<div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/cooltext472697499423442.png"/>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/b42e60b6.gif"/>
 <br></br>
 <br></br>
@@ -20,7 +22,7 @@
 <br></br>
 <br></br>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/13b67c48.gif"/>
-<div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/cooltext472696453405895.png"/>
+<div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/cooltext472697589854445.png"/>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/2c555316.gif"/>
 <br></br>
 
