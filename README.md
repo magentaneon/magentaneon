@@ -20,7 +20,7 @@
 <br></br>
 <br></br>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/13b67c48.gif"/>
-<div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/cooltext472696257618665.png"/>
+<div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/cooltext472696453405895.png"/>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/2c555316.gif"/>
 <br></br>
 
