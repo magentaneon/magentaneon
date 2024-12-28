@@ -3,12 +3,12 @@
 
 
 
-<div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/98a8a387.gif"/>
+<div align=center><img src="src="https://file.garden/Z27h4AbA8Ge0bepr/Tumblr614834623656348.gif"/>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/cooltext472697457427533.png"/>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/b42e60b6.gif"/>
 <br></br>
-<br></br> byi + info
-<br></br> socials. 
+<br></br> ## 
+<br></br> 
 <br></br>
 <br></br>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/13b67c48.gif"/>
@@ -18,7 +18,7 @@
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/b42e60b6.gif"/>
 <br></br>
 <br></br>
-<br></br> dni for pt
+<br></br> 
 <br></br>
 <br></br>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/13b67c48.gif"/>
