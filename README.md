@@ -1,20 +1,20 @@
-##For right now(?), this is my main site, might make a rentry
+### For right now(?), this is my main site, might make a rentry
 (( for ppl who dont know. i use this for ponytown aswell so it might not make sense in some parts.
 
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/eVthgIHzYzyQhtVIEpSh.gif"/>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/cooltext472697457427533.png"/>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/b42e60b6.gif"/>
 <br></br>
-##You can call me Magenta, or just Mag for short. feel free to int!! I wont bite i promise ^_^
+### You can call me Magenta, or just Mag for short. feel free to int!! I wont bite i promise ^_^
 <div align=center><img src="https://cdn.discordapp.com/emojis/1113867881311109210.webp?size=22&quality=lossless"/>
 <img src="https://cdn.discordapp.com/emojis/1113884930527727698.webp?size=22&quality=lossless"/>
 <img src="https://cdn.discordapp.com/emojis/1115013252582211584.webp?size=22&quality=lossless"/>
 <img src="https://file.garden/Z27h4AbA8Ge0bepr/errorlexic.png"/>
 <img src="https://file.garden/Z27h4AbA8Ge0bepr/missingtexturegender.png"/>
-<div align=center> ##socials:: tumblr , strwpg .
+<div align=center> ### socials:: tumblr , strwpg .
 <a href="https://tumblr.com/missingt3xture/" rel="nofollow">tumblr</a>
 <a href="https://missingt3xture.straw.page/" rel="nofollow">strwpg</a>
-<div align=center> ##Intrests:: Mouthwashing, errors & malware, etc.
+<div align=center> ### Intrests:: Mouthwashing, errors & malware, etc.
 <a href="https://missingt3xture.straw.page/interests" rel="nofollow">etc.</a>
 <br></br>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/13b67c48.gif"/>
