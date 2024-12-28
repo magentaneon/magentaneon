@@ -14,8 +14,8 @@
 <img src="https://cdn.discordapp.com/emojis/1115013252582211584.webp?size=22&quality=lossless"/>
 <img src="https://file.garden/Z27h4AbA8Ge0bepr/errorlexic.png"/>
 <img src="https://file.garden/Z27h4AbA8Ge0bepr/missingtexturegender.png"/>
-## socials:: [tumblr](https://www.tumblr.com/missingt3xture) [strwpg](https://missingt3xture.straw.page)
-## Intrests:: Mouthwashing, errors & malware, [etc.](https:missingt3xture.straw.page/interests)
+<div align=center> ## socials:: [tumblr](https://www.tumblr.com/missingt3xture) [strwpg](https://missingt3xture.straw.page)
+<div align=center> ## Intrests:: Mouthwashing, errors & malware, [etc.](https:missingt3xture.straw.page/interests)
 <br></br>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/13b67c48.gif"/>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/cooltext472697401163834.png"/>
