@@ -12,9 +12,9 @@
 <br></br>
 <br></br>
 <img src="https://gifcity.carrd.co/assets/images/gallery42/13b67c48.gif?v=47652796">
-<div align=center>### " Knock me to the floor . "
+<div align=center> ### " Knock me to the floor . "
 <div align=center><img src="https://gifcity.carrd.co/assets/images/gallery44/b3795190.gif?v=47652796"/>
-<div align=center>### " Shoot me up . "
+<div align=center/> " Shoot me up . "
 <div align=center><img src="https://gifcity.carrd.co/assets/images/gallery42/b42e60b6.gif?v=47652796"/>
 <br></br>
 <br></br>
@@ -24,4 +24,4 @@
 <div align=center><img src="https://gifcity.carrd.co/assets/images/gallery42/13b67c48.gif?v=47652796"/>
 <div align=center><img src="https://gifcity.carrd.co/assets/images/gallery48/2c555316.gif?v=47652796/>
 
-### " Fuck me like a whore . "
+<div align=center> ### " Fuck me like a whore . "
