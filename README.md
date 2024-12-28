@@ -15,7 +15,7 @@
 <div align=center> <strong>socials::</strong>
 <a href="https://tumblr.com/missingt3xture/" rel="nofollow">tumblr ,</a>
 <a href="https://missingt3xture.straw.page/" rel="nofollow">strwpg.</a>
-<div align=center> <strong>Intrests:: Mouthwashing, errors & malware, etc.</strong>
+<div align=center> <strong>Intrests:: Mouthwashing, errors & malware,</strong>
 <a href="https://missingt3xture.straw.page/interests" rel="nofollow">etc.</a>
 <br></br>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/13b67c48.gif"/>
