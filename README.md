@@ -1,5 +1,5 @@
-### For right now(?), this is my main site, might make a rentry
-(( for ppl who dont know. i use this for ponytown aswell so it might not make sense in some parts.
+<div align=center> # For right now(?), this is my main site, might make a rentry
+<div align=center> (( for ppl who dont know. i use this for ponytown aswell so it might not make sense in some parts.
 
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/eVthgIHzYzyQhtVIEpSh.gif"/>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/cooltext472697457427533.png"/>
