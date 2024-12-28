@@ -1,6 +1,6 @@
 <div align=center> <ins>For right now(?), this is my main site, might make a rentry</ins>
 <div align=center> <sub>(( for ppl who dont know. i use this for ponytown aswell so it might not make sense in some parts.</sub>
-
+<br></br>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/eVthgIHzYzyQhtVIEpSh.gif"/>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/cooltext472697457427533.png"/>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/b42e60b6.gif"/>
