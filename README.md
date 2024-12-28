@@ -1,6 +1,6 @@
 ### currently a work in progress 😔
 
-<div align=center><a href='https://www.free-website-hit-counter.com'><img src='https://www.free-website-hit-counter.com/zc.php?d=4&id=3030&s=5' border='0' alt='Free Website Hit Counter'>
+
 
 
 
@@ -22,3 +22,5 @@
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/13b67c48.gif"/>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/2c555316.gif"/>
 
+
+<div align=center><a href='https://www.free-website-hit-counter.com'><img src='https://www.free-website-hit-counter.com/zc.php?d=4&id=3030&s=5' border='0' alt='Free Website Hit Counter'>
