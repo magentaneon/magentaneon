@@ -10,6 +10,7 @@ wip rn :-(
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/a660b338.gif"/>
 <br></br>
 <strong>You can call me Magenta, or just Mag for short. feel free to int!! I wont bite i promise ^_^</strong>
+<div align=center> <sub> % Social Anxiety + Trust issues % </sub>
 <br></br>
 <div align=center><img src="https://cdn.discordapp.com/emojis/1113867881311109210.webp?size=22&quality=lossless"/>
 <img src="https://cdn.discordapp.com/emojis/1113884930527727698.webp?size=22&quality=lossless"/>
