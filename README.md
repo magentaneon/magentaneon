@@ -39,4 +39,4 @@ wip rn :-(
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/404.gif"/>
 <br></br>
 
-counter
+<div align='center'><a href='https://www.free-website-hit-counter.com'><img src='https://www.free-website-hit-counter.com/zc.php?d=4&id=4153&s=55' border='0' alt='Free Website Hit Counter'>
