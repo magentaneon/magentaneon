@@ -32,7 +32,7 @@ wip rn :-(
 <div align=center><img src=""/>
 <div align=center><img src=""/>
 <div align=center><img src=""/>
-<div align=center><img src=""/>
+<div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/404.gif"/>
 <br></br>
 
 counter
