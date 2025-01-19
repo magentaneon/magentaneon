@@ -7,7 +7,7 @@ wip rn :-(
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/f350952d.gif"/>
 <br></br>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/a660b338.gif"/>
-<div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/cooltext474206743222436.png"/>
+<div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/cooltext474221803203118.png"/>
 <br></br>
 <strong>You can call me Magenta, or just Mag for short. feel free to int!! I wont bite i promise ^_^</strong>
 <br></br>
