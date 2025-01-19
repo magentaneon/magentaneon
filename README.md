@@ -7,7 +7,6 @@
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/cooltext474221803203118.png"/>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/a660b338.gif"/>
 <br></br>
-<br></br>
 <strong>You can call me Magenta, or just Mag for short. feel free to int!! I wont bite i promise ^_^</strong>
 <div align=center> <sub> % Social Anxiety + Trust issues % </sub>
 <br></br>
