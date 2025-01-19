@@ -35,6 +35,7 @@
 <br></br>
 <br></br>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/a660b338.gif"/>
+<div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/cooltext474222405245992.png"/>
 <br></br>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/404.gif"/>
 <br></br>
