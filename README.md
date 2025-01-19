@@ -4,7 +4,7 @@ wip rn :-(
 <div align=center> <sub>(( for ppl who dont know. i use this for ponytown aswell so it might not make sense in some parts.</sub>
 <br></br>
 <br></br>
-<div align=center><img src=""/>
+<div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/f350952d.gif"/>
 <div align=center><img src=""/>
 <div align=center><img src=""/>
 <br></br>
