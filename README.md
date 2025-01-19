@@ -31,7 +31,7 @@ wip rn :-(
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/cooltext474222446781413.png"/>
 <br></br>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/silly.PNG"/>
-<div align=center><sub>While i don't have a dni,</sub> <strong>the only people i want to stay VERY far away from me are</strong> <ins>Pro-harrasment,</ins> <sub>and</sub> <ins>Radqueers.</ins>
+<div align=center><sub>While i don't have a dni,</sub>  the only people i want to stay VERY far away from me are <ins>Pro-harrasment,</ins> <sub>and</sub> <ins>Radqueers.</ins>
 <br></br>
 <br></br>
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/a660b338.gif"/>
