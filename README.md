@@ -26,9 +26,9 @@ wip rn :-(
 <div align=center> <strong>Intrests:: Mouthwashing, errors & malware, ppg,</strong>
 <a href="https://missingt3xture.straw.page/interests" rel="nofollow">etc.</a>
 <br></br>
-<div align=center><img src=""/>
-<div align=center><img src=""/>
-<div align=center><img src=""/>
+<div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/cooltext474222348034644.png"/>
+<div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/ezgif-4-f94a14f7af.gif"/>
+<div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/cooltext474222446781413.png"/>
 <div align=center><img src=""/>
 <div align=center><img src=""/>
 <div align=center><img src=""/>
