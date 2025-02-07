@@ -13,10 +13,10 @@
 <div align=center> <sub> % Social Anxiety + Trust issues % </sub>
 <br></br>
   
-<div align=center><a href="https://queerdom.fandom.com/wiki/Transgender/" rel="nofollow"><img src="https://cdn.discordapp.com/emojis/1113867881311109210.webp?size=22&quality=lossless"/>
-<a href="https://orientation.fandom.com/wiki/Pansexual/" rel="nofollow"><img src="https://cdn.discordapp.com/emojis/1113884930527727698.webp?size=22&quality=lossless"/>
-<a href="https://orientation.fandom.com/wiki/Ambiamorous/" rel="nofollow"><img src="https://cdn.discordapp.com/emojis/1115013252582211584.webp?size=22&quality=lossless"/>
-<a href="https://queerdom.fandom.com/wiki/Autorose/" rel="nofollow"><img src="https://file.garden/Z27h4AbA8Ge0bepr/autorose.png"/> 
+<div align=center><a href="https://queerdom.fandom.com/wiki/Transgender" rel="nofollow"><img src="https://cdn.discordapp.com/emojis/1113867881311109210.webp?size=22&quality=lossless"/>
+<a href="https://orientation.fandom.com/wiki/Pansexual" rel="nofollow"><img src="https://cdn.discordapp.com/emojis/1113884930527727698.webp?size=22&quality=lossless"/>
+<a href="https://orientation.fandom.com/wiki/Ambiamorous" rel="nofollow"><img src="https://cdn.discordapp.com/emojis/1115013252582211584.webp?size=22&quality=lossless"/>
+<a href="https://queerdom.fandom.com/wiki/Autorose" rel="nofollow"><img src="https://file.garden/Z27h4AbA8Ge0bepr/autorose.png"/> 
 
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/errorlexic.png"/>
 <img src="https://file.garden/Z27h4AbA8Ge0bepr/missingtexturegender.png"/>
