@@ -13,7 +13,7 @@
 <div align=center><img src="https://cdn.discordapp.com/emojis/1113867881311109210.webp?size=22&quality=lossless"/>
 <img src="https://cdn.discordapp.com/emojis/1113884930527727698.webp?size=22&quality=lossless"/>
 <img src="https://cdn.discordapp.com/emojis/1115013252582211584.webp?size=22&quality=lossless"/>
-<img src="https://file.garden/Z27h4AbA8Ge0bepr/autorose.png"/>
+[<img src="https://file.garden/Z27h4AbA8Ge0bepr/autorose.png">](https://queerdom.fandom.com/wiki/Autorose/)
 <div align=center><img src="https://file.garden/Z27h4AbA8Ge0bepr/errorlexic.png"/>
 <img src="https://file.garden/Z27h4AbA8Ge0bepr/missingtexturegender.png"/>
 <br></br>
