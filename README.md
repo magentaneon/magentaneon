@@ -4,6 +4,8 @@
 <br></br>
 <div align=center><img src="https://noneofurbuisnessgrraaaa.carrd.co/assets/images/gallery01/0fb94317.jpg?v=0826bf24"/>
 <br></br>
+  little bit of a wip.... wait. trust
+<br></br>
 <br></br>
 
 
