@@ -1,4 +1,4 @@
-<div align='center'><a href='https://www.free-website-hit-counter.com'><img src='https://www.free-website-hit-counter.com/zc.php?d=4&id=4153&s=55' border='0' alt='Free Website Hit Counter'>
+
 
 <br></br>
 <br></br>
@@ -7,5 +7,5 @@
   little bit of a wip.... wait. trust
 <br></br>
 <br></br>
-
+<div align='center'><a href='https://www.free-website-hit-counter.com'><img src='https://www.free-website-hit-counter.com/zc.php?d=4&id=4153&s=55' border='0' alt='Free Website Hit Counter'>
 
