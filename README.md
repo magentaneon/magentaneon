@@ -13,6 +13,5 @@
 <div align=center> btw, please read my byi before interacting or befriending/following ^_^
 <br></br>
 <br></br>
-
 <div align='center'><a href='https://www.free-website-hit-counter.com'><img src='https://www.free-website-hit-counter.com/zc.php?d=4&id=4153&s=55' border='0' alt='Free Website Hit Counter'>
 
