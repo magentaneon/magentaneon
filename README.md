@@ -1,9 +1,7 @@
 <div align=center><img src="https://noneofurbuisnessgrraaaa.carrd.co/assets/images/gallery01/8ce79e70.gif?v=07360a13"/>
 <br></br>
-<div align=center><img src="https://noneofurbuisnessgrraaaa.carrd.co/assets/images/gallery01/0fb94317.jpg?v=0826bf24"/>
-  
+<div align=center><img src="https://noneofurbuisnessgrraaaa.carrd.co/assets/images/gallery01/0fb94317.jpg?v=0826bf24"/> 
 <br></br>
-  
 <a href="https://rentry.co/magentaneon" rel="nofollow">rentry</a> . 
 <a href="https://missingt3xture.straw.page" rel="nofollow">straw</a> . 
 <a href="https://magentaneon.atabook.org/" rel="nofollow">ata</a> . 
