@@ -1,7 +1,5 @@
 <div align=center><img src="https://noneofurbuisnessgrraaaa.carrd.co/assets/images/gallery01/8ce79e70.gif?v=07360a13"/>
-
 <br></br>
-
 <div align=center><img src="https://noneofurbuisnessgrraaaa.carrd.co/assets/images/gallery01/0fb94317.jpg?v=0826bf24"/>
   
 <br></br>
