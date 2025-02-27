@@ -10,7 +10,7 @@
 <br></br>
 
 <div align=center><img src="https://noneofurbuisnessgrraaaa.carrd.co/assets/images/gallery01/d88d90ce.png?v=07360a13"/>
-  
+<div align=center> btw, please read my byi before interacting or befriending/following ^_^
 <br></br>
 <br></br>
 
