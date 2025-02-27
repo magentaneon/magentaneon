@@ -6,6 +6,7 @@
 <a href="https://missingt3xture.straw.page" rel="nofollow">straw</a> . 
 <a href="https://magentaneon.atabook.org/" rel="nofollow">ata</a> . 
 <a href="https://www.tumblr.com/blog/missingt3xture" rel="nofollow">tumblr</a>
+<sub>credits goes to gael for making my rentry,,</sub>
 <br></br>
 
 <div align=center><img src="https://noneofurbuisnessgrraaaa.carrd.co/assets/images/gallery01/d88d90ce.png?v=07360a13"/>
