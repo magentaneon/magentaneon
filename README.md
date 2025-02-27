@@ -3,10 +3,12 @@
 <br></br>
 <div align=center><img src="https://noneofurbuisnessgrraaaa.carrd.co/assets/images/gallery01/0fb94317.jpg?v=0826bf24"/>
 <br></br>
-
 rentry . straw . ata . tumblr
 <br></br>
-<a href="https://rentry.co/magentaneon" rel="nofollow">rentry</a>
+<a href="https://rentry.co/magentaneon" rel="nofollow">rentry</a> . 
+<a href="https://missingt3xture.straw.page" rel="nofollow">straw</a> . 
+<a href="https://magentaneon.atabook.org/" rel="nofollow">ata</a> . 
+<a href="https://www.tumblr.com/blog/missingt3xture" rel="nofollow">tumblr</a>
 <br></br>
 little bit of a wip.... wait. trust
 <br></br>
