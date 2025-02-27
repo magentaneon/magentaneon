@@ -3,7 +3,9 @@
 <br></br>
 <div align=center><img src="https://noneofurbuisnessgrraaaa.carrd.co/assets/images/gallery01/0fb94317.jpg?v=0826bf24"/>
 <br></br>
-links... rentry,, straw,, ata,, and tumblr...
+
+rentry . straw . ata . tumblr
+<a href="https://rentry.co/magentaneon" rel="nofollow">rentry</a>
 <br></br>
 little bit of a wip.... wait. trust
 <br></br>
