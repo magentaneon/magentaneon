@@ -13,6 +13,7 @@
 <div align=center> btw, please read my  
 <a href="https://rentry.co/magsbyi_heh" rel="nofollow">byi</a> before interacting or befriending/following,, thanksies!! ^_^
 <br></br>
+<div align=center>[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31c5s3hsj7uesm4yanieuuhmvbvi&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=ff00ff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 <br></br>
 <div align='center'><a href='https://www.free-website-hit-counter.com'><img src='https://www.free-website-hit-counter.com/zc.php?d=4&id=4153&s=55' border='0' alt='Free Website Hit Counter'>
 
