@@ -5,7 +5,8 @@
 <a href="https://rentry.co/magentaneon" rel="nofollow">rentry</a> . 
 <a href="https://missingt3xture.straw.page" rel="nofollow">straw</a> . 
 <a href="https://magentaneon.atabook.org/" rel="nofollow">ata</a> . 
-<a href="https://www.tumblr.com/blog/missingt3xture" rel="nofollow">tumblr</a>
+<a href="https://www.tumblr.com/blog/missingt3xture" rel="nofollow">tumblr</a> . 
+<a href="https://spacehey.com/magenta_neon" rel="nofollow">spacehey</a>
 <div align=center><sub>*credits goes to gael for making my rentry,,</sub>
 <br></br>
 
