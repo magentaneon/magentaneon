@@ -15,5 +15,6 @@
 <a href="https://rentry.co/magsbyi_heh" rel="nofollow">byi</a> before interacting or befriending/following,, thanksies!! ^_^
 <br></br>
 <br></br>
-<div align='center'><a href='https://www.free-website-hit-counter.com'><img src='https://www.free-website-hit-counter.com/zc.php?d=4&id=4153&s=55' border='0' alt='Free Website Hit Counter'>
+<a href="https://www.freecounterstat.com" title="free page counter"><img src="https://counter2.optistats.ovh/private/freecounterstat.php?c=e1rxarz2t1rr3krm5ekwebscs55gxyf8" border="0" title="free page counter" alt="free page counter"></a>
+
 
