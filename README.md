@@ -15,6 +15,4 @@
 <a href="https://rentry.co/magsbyi_heh" rel="nofollow">byi</a> before interacting or befriending/following,, thanksies!! ^_^
 <br></br>
 <br></br>
- <a href='http://www.freevisitorcounters.com'>/a> <script type='text/javascript' src='https://www.freevisitorcounters.com/auth.php?id=646c1b43daba6ef8a2eb26c7099b81b99f0c3c3a'></script>
-<script type="text/javascript" src="https://www.freevisitorcounters.com/en/home/counter/1331146/t/13"></script>
-
+<img src="https://visit-counter.vercel.app/counter.png?page=https%3A%2F%2Fgithub.com%2Fmagentaneon&s=30&c=e911ee&bg=240024&no=4&ff=digi&tb=total+gays%3A+&ta=" alt="visits">
