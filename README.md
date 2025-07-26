@@ -1,6 +1,6 @@
-<divalign=center><img src="https://noneofurbuisnessgrraaaa.carrd.co/assets/images/gallery02/eeba7401.png?v=6a5aea1a">
+<div align=center><img src="https://noneofurbuisnessgrraaaa.carrd.co/assets/images/gallery02/eeba7401.png?v=6a5aea1a">
 
-<divalign=center> <br></br>
+<div align=center> <br></br>
 <a href="https://rentry.co/digitalcollective" rel="nofollow">our rentry</a> . 
 <a href="https://missingt3xture.straw.page" rel="nofollow">straw</a> . 
 <a href="https://magentaneon.atabook.org/" rel="nofollow">ata</a>  
