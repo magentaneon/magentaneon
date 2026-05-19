@@ -6,9 +6,9 @@
 <br></br>
 <div align=center>our links need to be rethemed and updated, refer to our pronouns.cc (in our rentry) if you wish to know our general theme 
 <div align=center><sup>(we dont exactly have one..)</sup> 
+<br></br>
 
-
-<img src="https://visit-counter.vercel.app/counter.png?page=https%3A%2F%2Fgithub.com%2Fmagentaneon&s=30&c=e911ee&bg=240024&no=4&ff=digi&tb=total+gays%3A+&ta=" alt="visits">
+<div align=center><img src="https://visit-counter.vercel.app/counter.png?page=https%3A%2F%2Fgithub.com%2Fmagentaneon&s=30&c=e911ee&bg=240024&no=4&ff=digi&tb=total+gays%3A+&ta=" alt="visits">
 <br></br>
 <div align=center> <sup>PLEASE keep in mind that if any of us feel uncomfortable or off with you following us we will block you on github and potientially ponytown.</sup>
 <br></br>
