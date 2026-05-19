@@ -4,7 +4,8 @@
 <a href="https://digitalerror.straw.page" rel="nofollow">straw</a> . 
 <a href="https://digitalerror.atabook.org" rel="nofollow">ata</a>  
 <br></br>
-<div align=center>our links need to be rethemed and updated, refer to our pronouns.cc (in our rentry) if you wish to know our general theme <sup>(we dont exactly have one..)</sup> 
+<div align=center>our links need to be rethemed and updated, refer to our pronouns.cc (in our rentry) if you wish to know our general theme 
+<div align=center><sup>(we dont exactly have one..)</sup> 
 
 
 <img src="https://visit-counter.vercel.app/counter.png?page=https%3A%2F%2Fgithub.com%2Fmagentaneon&s=30&c=e911ee&bg=240024&no=4&ff=digi&tb=total+gays%3A+&ta=" alt="visits">
