@@ -1,8 +1,7 @@
 <div align=center><img src="https://noneofurbuisnessgrraaaa.carrd.co/assets/images/gallery02/eeba7401.png?v=6a5aea1a">
 <div align=center> <br></br>
 <a href="https://rentry.co/digitalcollective" rel="nofollow">our rentry</a> . 
-<a href="https://digitalerror.straw.page" rel="nofollow">straw</a> . 
-<a href="https://digitalerror.atabook.org" rel="nofollow">ata</a>  
+<a href="https://mechanicsinflesh.atabook.org" rel="nofollow">ata</a>  
 <br></br>
 <div align=center>our links need to be rethemed and updated, refer to our pronouns.cc (in our rentry) if you wish to know our general theme 
 <div align=center><sup>(we dont exactly have one..)</sup> 
