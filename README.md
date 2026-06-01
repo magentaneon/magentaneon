@@ -4,7 +4,7 @@
 <a href="https://digitalerror.straw.page/" rel="nofollow">straw</a> .
 <a href="https://mechanicsinflesh.atabook.org" rel="nofollow">ata</a>  
 <br></br>
-<div align=center>our links need to be rethemed and updated, refer to our pronouns.cc (in our rentry) if you wish to know our general theme 
+<div align=center>our links need to be rethemed and updated, refer to our pronouns.cc (in our rentry) or atabook if you wish to know our general theme 
 <div align=center><sup>(we dont exactly have one..)</sup> 
 <br></br>
 
