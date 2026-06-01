@@ -1,4 +1,4 @@
-<div align=center><img src="https://noneofurbuisnessgrraaaa.carrd.co/assets/images/gallery02/eeba7401.png?v=6a5aea1a](https://noneofurbuisnessgrraaaa.carrd.co/assets/images/gallery04/962e53b1.png?v=295cb970">
+<div align=center><img src="https://noneofurbuisnessgrraaaa.carrd.co/assets/images/gallery04/962e53b1.png?v=295cb970">
 <div align=center> <br></br>
 <a href="https://rentry.co/digitalcollective" rel="nofollow">our rentry</a> . 
 <a href="https://digitalerror.straw.page/" rel="nofollow">straw</a> .
