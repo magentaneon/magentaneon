@@ -11,8 +11,7 @@
 
 C+H prefferably only friends/equals or if consented to :-)
 <br></br>
-
-<div align=center><img src="https://visit-counter.vercel.app/counter.png?page=https%3A%2F%2Fgithub.com%2Fmagentaneon&s=30&c=e911ee&bg=240024&no=4&ff=digi&tb=total+gays%3A+&ta=" alt="visits"> (broken link, too lazy to fix)
+<div align=center><img src="https://noneofurbuisnessgrraaaa.carrd.co/assets/images/gallery06/9cf23f6d.png?v=bd72f368">
 <br></br>
 <div align=center> <sup>PLEASE keep in mind that if any of us feel uncomfortable or off with you following us we will block you on github and potientially ponytown.</sup>
 <br></br>
