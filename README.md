@@ -7,7 +7,7 @@
 <div align=center>our links need to be rethemed and updated, refer to our pronouns.cc (in our rentry) or atabook if you wish to know our general theme 
 <div align=center><sup>(we dont exactly have one..)</sup> 
 <br></br>
-
+<br></br>
 
 C+H prefferably only friends/equals or if consented to :-)
 <br></br>
