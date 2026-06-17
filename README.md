@@ -11,7 +11,7 @@
 
 <div align=center>C+H prefferably only friends/equals or if consented to :-)
 <br></br>
-<div align=center> <b> do NOT copy our skins or take heavy inspo</b>, doing this will make you end up in our blocklist ! 
+<div align=center> <b> do NOT copy our skins or take heavy inspo</b>, doing this will end you up in our blocklist ! 
 
 <br></br>
 <div align=center><img src="https://noneofurbuisnessgrraaaa.carrd.co/assets/images/gallery06/0d6dff43.png?v=bb725a24">
