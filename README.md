@@ -10,8 +10,8 @@
 <br></br>
 
 <div align=center>C+H prefferably only friends/equals or if consented to :-)
-
-<div align=center> <b> do NOT copy our skins or take heavy inspo</b>, doing this will make you end up in our blocklist ! <3 
+<br></br>
+<div align=center> <b> do NOT copy our skins or take heavy inspo</b>, doing this will make you end up in our blocklist ! 
 
 <br></br>
 <div align=center><img src="https://noneofurbuisnessgrraaaa.carrd.co/assets/images/gallery06/0d6dff43.png?v=bb725a24">
