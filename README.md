@@ -18,4 +18,4 @@
 <br></br>
 <div align=center> <sup>PLEASE keep in mind that if any of us feel uncomfortable or off with you following us we will block you on github and potientially ponytown.</sup>
 <br></br>
-  <div align=center> <sup>strawpage is abit broken for us to use so we wont be responding on it anymore :-(</sup>
+  <div align=center> <sup>we may reply late to gimmicks on strawpage, please acknlowedge this!</sup>
